@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Bilinchick
+- 👀 I’m interested in Python
+- 🌱 I’m currently learning by yourself
+- My telegram: t.me/vadik_beb
